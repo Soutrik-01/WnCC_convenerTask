@@ -14,5 +14,4 @@ any person or any source, be it directly or indirectly, I shall duly credit and 
 person or source in my work.
 5. I shall not attempt to falsify any academic documents, my presence or my identity in a lecture,
 examination or any other academic activity, nor shall I aid anyone else in the same.
-Life on Campus:
-1. I shall not harass any person, physically or mentally for any reason whatsoever. I shall treat
+                                                                 -Soutrik Sarangi
